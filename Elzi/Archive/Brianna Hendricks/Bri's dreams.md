@@ -1,0 +1,13 @@
+I had the strangest dream... I was climbing a tree, but it was so tall it went on nearly forever. Elves lived inside it and one waved to me. Then I got to the top and the inside was hollow, I fell in and the wind was rushing past me. It felt like I was falling forever, I was going so fast, all the elf houses were just rushing past me. A gnome in a tiny carriage came up alongside me with a team of tiny, tiny horses and tipped his hat to me. Then I hit the ground but I just kinda went, squish, right into it and deep into the earth. Then I woke up.
+
+~~I had the strangest dream... there was absolutely nothing. Not even black, not even the concept of space or time. Then I woke up. 
+
+I had the strangest dream... a girl gave me a flower. On the flower was a spider, but it was a friendly little spider and it invited me to play stickball. So I went to its house which was this enormous wine bottle, but I fell in and started to drown. A whirlpool formed and when I woke up a walrus scolded me for not filling out his form correctly. Then I woke up, for real.
+
+I had the strangest dream... I was an octopus, but like huuuge and made of metal, like something a gnome would make you know? and I was flying through the sky, everything was inky black except there were little sparkly lights coming off the forest below, which were actually ginormous forest fires. My dad yelled at me to get him a fork but when I went to give it to him, he was in the bath. Then I woke up. 
+
+I had the coolest dream... I was like, this enormous presence just racing through the forest, eating everything in my path, like a great inferno. Then a giiiiiant mushroom appeared, pop! and told me I was a good girl. All the trees came back to life, and then I woke up. 
+
+~~I had the strangest dream... the King's guard had captured me and were interrogating me for doing something terrible, only I had no idea what they wanted so I turned into a stream of light and went out of the window. It turned out we were under water and this massive white beetle swam past so I hitched a ride. When the beetle got tired, Ren you turned up! But you didn't say anything, just gestured at me to get off the beetle. Then I woke up. 
+
+~~I had the coolest dream... I was riding a stampede of mushroom people who were all singing and yelling. We were running over a field of cupcakes, I bent over and grabbed a bit and it tasted soooo good. It felt so good to be part of it all you know? I felt so at home. Then we all burst into flame and danced around and then I woke up. 

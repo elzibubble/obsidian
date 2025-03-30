@@ -1,0 +1,17 @@
+{
+  "types": {
+    "aliases": "aliases",
+    "cssclasses": "multitext",
+    "tags": "tags",
+    "injury": "number",
+    "stunts": "number",
+    "brawl": "number",
+    "tough": "number",
+    "tech": "number",
+    "weapons": "number",
+    "drive": "number",
+    "sneak": "number",
+    "wits": "number",
+    "hot": "number"
+  }
+}
